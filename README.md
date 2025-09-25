@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UlyssesH23
+- 👋 Hi, I’m Ulysses Hill
 - Dartmouth Student / Malaney Lab Undergraduate
 - 📫 You can reach me at uly.j.h.2004@gmail.com or ulysses.j.hill.27@gmail.com
 - -
